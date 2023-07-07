@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **kanak05102002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1KA49evyOiGLPDxuUYbnNf0IzINrd2VmO/view?usp=sharing](https://drive.google.com/file/d/1KA49evyOiGLPDxuUYbnNf0IzINrd2VmO/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1XFThKezUWG06cGny_ZkdgTKiSsMN-viJ/view?usp=sharing](https://drive.google.com/file/d/1XFThKezUWG06cGny_ZkdgTKiSsMN-viJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
