@@ -1,4 +1,3 @@
-![alt text](https://github.com/Kanak0510/Kanak0510/blob/main/Image.png?raw=true)
 <h1 align="center">Hi 👋, I'm Kanak Negi</h1>
 <h3 align="center">An Aspiring Software Engineer from India</h3>
 
